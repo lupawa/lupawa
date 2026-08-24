@@ -21,5 +21,5 @@
 
 <div align="center">
   
-###### Always IWC, C+H Comfort, Usually with Mutt. I most likely won't consider you a friend, even if I say we are friends.
+###### Always IWC. C+H Comfort, Usually with my dear Mutt. I most likely won't consider you a friend, even if I say we are friends.
 </div>
