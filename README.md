@@ -18,3 +18,5 @@
 <div align="center">
 <img src="https://files.catbox.moe/3xt9u4.png" alt="easterbarbi" width="300">
 </div>
+
+###### Always IWC, C+H Comfort, Usually with Mutt. I most likely won't consider you a friend, even if I say we are friends.
