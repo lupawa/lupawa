@@ -1,16 +1,20 @@
-## Hi there 👋
+<div align="center">
+<img src="https://files.catbox.moe/lglkjs.gif" alt="ME" width="400" height="210">
+</div>
 
-<!--
-**lupawa/lupawa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+<img src="https://files.catbox.moe/xyy4xn.png" alt="LUPAWA" width="200" height="100">
 
-Here are some ideas to get you started:
+  ###### _Robert_ / Richard ‎ ‎ ‎ ‎ OR‎ ‎ ‎ ‎  _Rob_ / Rick
+  ###### He / Ask‎ ‎ ‎ ‎ ‎  System‎ ‎ ‎ ‎ ‎  INTJ-T
+  ###### SirenoSexual‎ ‎  LithroRomantic‎ ‎  Demi-Platonic
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+  
+###### MY FOREVER <a href="https://your-project.com"> <img src="https://files.catbox.moe/ax0qre.png" alt="tyler" width="120"/> </a> ♡
+</div>
+
+<div align="center">
+<img src="https://files.catbox.moe/3xt9u4.png" alt="easterbarbi" width="300">
+</div>
