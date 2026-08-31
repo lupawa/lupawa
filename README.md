@@ -12,7 +12,7 @@
 
 <div align="center">
   
-###### MY FOREVER <a href="https://github.com/MoriouChoRadio"> <img src="https://files.catbox.moe/ax0qre.png" alt="tyler" width="120"/> </a> ♡
+###### MY FOREVER <a href="https://github.com/futamono"> <img src="https://files.catbox.moe/ax0qre.png" alt="tyler" width="120"/> </a> ♡
 </div>
 
 <div align="center">
