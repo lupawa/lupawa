@@ -7,7 +7,7 @@
 
   ###### _Robert_ / Richard ‎ ‎ ‎ ‎ OR‎ ‎ ‎ ‎  _Rob_ / Rick
   ###### He / Ask‎ ‎ ‎ ‎ ‎  System‎ ‎ ‎ ‎ ‎  INTJ-T
-  ###### SirenoSexual‎ ‎  LithroRomantic‎ ‎  Demi-Platonic
+  ###### Gay ‎ ‎ ‎ ‎ ‎ ‎ ‎Bear
 </div>
 
 <div align="center">
