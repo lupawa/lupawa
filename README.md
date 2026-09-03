@@ -3,7 +3,7 @@
 </div>
 
 <div align="center">
-<img src="https://files.catbox.moe/xyy4xn.png" alt="LUPAWA" width="200" height="100">
+<img src="https://files.catbox.moe/npqa5i.png" alt="ME" width="200" height="100">
 
   ###### _Robert_ / Richard ‎ ‎ ‎ ‎ OR‎ ‎ ‎ ‎  _Rob_ / Rick
   ###### He / Ask‎ ‎ ‎ ‎ ‎  System‎ ‎ ‎ ‎ ‎  INTJ-T
@@ -12,7 +12,7 @@
 
 <div align="center">
   
-###### MY FOREVER <a href="https://github.com/futamono"> <img src="https://files.catbox.moe/ax0qre.png" alt="tyler" width="120"/> </a> ♡
+###### My Darling, <a href="https://github.com/futamono"> @futamono
 </div>
 
 <div align="center">
