@@ -3,20 +3,22 @@
 </div>
 
 <div align="center">
-<img src="https://files.catbox.moe/npqa5i.png" alt="ME" width="200" height="100">
+<img src="https://file.garden/apnVuA0ltw0kl0kC/Verity" alt="ME" width="200" height="200">
 
   ###### _Robert_ / Richard ‎ ‎ ‎ ‎ OR‎ ‎ ‎ ‎  _Rob_ / Rick
-  ###### He / Ask‎ ‎ ‎ ‎ ‎  System‎ ‎ ‎ ‎ ‎  INTJ-T
-  ###### Gay ‎ ‎  ‎&‎ ‎ ‎ ‎ ‎Bear
+  ###### He / Him ‎ ‎ ‎ ‎  DarkFiction‎ ‎ ‎ ‎  INTJ-T
+<img src="https://file.garden/apnVuA0ltw0kl0kC/Gay" alt="Gay" width="35">
+<img
+src="https://file.garden/apnVuA0ltw0kl0kC/Bear" alt="Bear" width="35">
+</div>
+
+<div align="center">
+<img src="https://file.garden/apnVuA0ltw0kl0kC/Verimob" alt="VeriMob" width="300">
 </div>
 
 <div align="center">
   
 ###### My Darling, <a href="https://github.com/futamono"> @futamono
-</div>
-
-<div align="center">
-<img src="https://files.catbox.moe/3xt9u4.png" alt="easterbarbi" width="300">
 </div>
 
 <div align="center">
