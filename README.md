@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://files.catbox.moe/lglkjs.gif" alt="ME" width="400" height="210">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sofadi+One&pause=1000&color=8F6645&width=435&lines=Do+you+think+of+me+when+your+not+playing%3F" alt="Typing SVG" /></a>
 </div>
 
 <div align="center">
