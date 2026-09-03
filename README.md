@@ -7,7 +7,7 @@
 
   ###### _Robert_ / Richard ‎ ‎ ‎ ‎ OR‎ ‎ ‎ ‎  _Rob_ / Rick
   ###### He / Ask‎ ‎ ‎ ‎ ‎  System‎ ‎ ‎ ‎ ‎  INTJ-T
-  ###### Gay ‎ ‎ ‎ ‎ ‎ ‎ ‎Bear
+  ###### Gay ‎ ‎  ‎&‎ ‎ ‎ ‎ ‎Bear
 </div>
 
 <div align="center">
