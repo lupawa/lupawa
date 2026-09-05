@@ -18,7 +18,7 @@ src="https://file.garden/apnVuA0ltw0kl0kC/Bear" alt="Bear" width="35">
 
 <div align="center">
   
-###### My Darling, <a href="https://github.com/futamono"> @futamono
+###### My darling, <a href="https://github.com/futamono"> @futamono
 </div>
 
 <div align="center">
